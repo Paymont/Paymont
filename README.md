@@ -1,6 +1,6 @@
 -  Hi, I’m Payden Montgomery
 -  I’m interested in landing a career in the cybersecurity field
--  I have just completed the google cybersecurity certificate
+-  I have just completed the google cybersecurity certificate file:///C:/Users/Payden/Documents/cybersecurity/Coursera%20VEC94QGD7TL2.pdf
 -  The best way to reach me is paydenmontgomery@gmail.com
    
 
